@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...you tell me...
 - 📫 How to reach me - 
 - 😄 Pronouns - he/him
-- ⚡ Fun fact - I'm tired of sleaping
+- ⚡ Fun fact - I'm tired of sleaping (I steal your codes)
 
 <!---
 BMAG-V/BMAG-V is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
